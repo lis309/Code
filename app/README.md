@@ -22,7 +22,9 @@
 
 ![image](https://github.com/lis309/Code/assets/127986044/b97025fc-57c0-4c3b-9404-c0446a643a7c)
 
+![image](https://github.com/lis309/Code/assets/127986044/12a30f72-6cfe-4bf2-8fa0-8b4f1d666130)
 
+![image](https://github.com/lis309/Code/assets/127986044/428e8125-8e06-4397-ac5a-2e235b6cc0ef)
 
 
 

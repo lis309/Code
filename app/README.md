@@ -26,8 +26,29 @@
 
 ![image](https://github.com/lis309/Code/assets/127986044/428e8125-8e06-4397-ac5a-2e235b6cc0ef)
 
+![image](https://github.com/lis309/Code/assets/127986044/35837a25-e12d-4642-a458-194b39de965a)
 
+![image](https://github.com/lis309/Code/assets/127986044/8c0fe8a8-0689-4ba0-93bd-76928b5679fa)
 
+![image](https://github.com/lis309/Code/assets/127986044/d2e5de10-523b-463d-921d-0ce1e0702c0b)
+
+![image](https://github.com/lis309/Code/assets/127986044/54f0d280-aedd-424c-b256-f4e50015e8af)
+
+![image](https://github.com/lis309/Code/assets/127986044/8446e45a-21ec-43f5-aeea-99cf3ad417bc)
+
+![image](https://github.com/lis309/Code/assets/127986044/2d542f27-1632-41a4-8f7c-a696cc7058c7)
+
+![image](https://github.com/lis309/Code/assets/127986044/adc6119c-4ad6-4716-b257-d6054cb3c33b)
+
+![image](https://github.com/lis309/Code/assets/127986044/144956e5-b357-4612-9574-e04151667f72)
+
+![image](https://github.com/lis309/Code/assets/127986044/29d131a8-1312-44a7-81de-d460ca327bc2)
+
+![image](https://github.com/lis309/Code/assets/127986044/d8b193fe-7afe-44db-ab16-7a1f933d3306)
+
+![image](https://github.com/lis309/Code/assets/127986044/7957f03c-6c1a-48ca-a183-c0052a91ceb3)
+
+![image](https://github.com/lis309/Code/assets/127986044/93bace0e-1b36-4994-bf33-b38ba91360e9)
 
 
 
